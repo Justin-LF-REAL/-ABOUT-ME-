@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @Justin_lf_
+- 😉 My Fav Animal: My fav animal is the capybara
 - 😄 Pronouns: He/Him
+- 😔 Sad fact: I miss my ex girlfriend
 - ⚡ Fun fact: I'm a streamer XD
 
 <!---
